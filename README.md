@@ -1,2 +1,2 @@
-# Aleks
-для учебных целей
+# Aleksander N
+
